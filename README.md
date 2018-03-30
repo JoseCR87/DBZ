@@ -1,5 +1,2 @@
-# IDK
-The fok is this
-      gay
-        merjda
-        nibba
+# DBZ
+https://twitter.com/dokkan_official?lang=en
